@@ -1,6 +1,6 @@
 # Description
 > Unlock your full potential in Fortnite with the Cracked Onyx Fortnite Cheat, a cutting-edge solution designed for players aiming to dominate the battlefield. With features like customizable Aimbot, advanced ESP visuals, and No Recoil, Onyx offers everything you need to stay ahead of the competition. Whether you’re a casual player or an experienced competitor, this tool adapts to your needs, delivering consistent performance and seamless gameplay.
-> 
+> 1
 > Onyx is trusted by thousands of players worldwide for its reliability, security, and user-friendly interface. Its innovative features give you the competitive edge needed to succeed in Fortnite matches while ensuring minimal impact on your system. From precise aiming to enhanced map awareness, Onyx is the ultimate tool for strategic gameplay.
 
 
